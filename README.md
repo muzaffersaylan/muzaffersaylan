@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @muzaffersaylan
 - 👀 I’m interested in art.
-- 🌱 I’m currently learning NFT's.
+- 🌱 I’m currently learning NFT's. I like Punk NFT's.
 - 💞️ I’m looking to collaborate on NFT community.
 - 📫 How to reach me, you can whereever.
 
