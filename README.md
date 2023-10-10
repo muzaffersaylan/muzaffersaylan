@@ -2,7 +2,7 @@
 - 👀 I’m interested in art.
 - 🌱 I’m currently learning NFT's. I like Punk NFT's.
 - 💞️ I’m looking to collaborate on NFT community.
-- 📫 How to reach me, you can whereever.
+- 📫 How to reach me, you can whereever you can want.
 
 <!---
 muzaffersaylan/muzaffersaylan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
